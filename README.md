@@ -1,7 +1,7 @@
 ### Hey there, fellow Earthlings and tech enthusiasts! 🌍💻 
 **I'm a Computer Science Engineer with a passion for all things creative and a motivation level that rivals a hyperactive squirrel on caffeine.** From coding to creating, I'm on a quest to build the coolest tech while figuring out how to adult properly. 🚀👩‍💻
 
-My interests are as diverse as a bag of jellybeans—ranging from cognitive sciences to behavioral economics. It's like aiming to be the Elon Musk of tech, but with a more attainable level of coolness. 😎💡
+My interests are as diverse as a bag of jellybeans—ranging from cognitive sciences to behavioral economics. Think of me as the tech-driven enthusiast with a touch of everyday awesomeness. 😎💡
 
 Why do I love tech so much? It's the endless possibilities! **I see technology as the ultimate playground where cognitive sciences and economics come together for an epic party**. 🎉🤖 And the DJ? AI! 🤖🎶
 
